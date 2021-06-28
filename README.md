@@ -1,0 +1,1 @@
+O curso tem sido bastante desafiador para mim, o que torna tudo mais interessante!
